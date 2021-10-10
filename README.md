@@ -5,7 +5,7 @@
 - I’m currently learning everything 🤣
 - I'm studying computer engineering 💻
 - GDL | CUCEI 🦁
-- I love to tistening to music 🎵🧣
+- I love to listening to music 🎵🧣
 - May the force be with you 🌠
 
 ### Connect with me:
